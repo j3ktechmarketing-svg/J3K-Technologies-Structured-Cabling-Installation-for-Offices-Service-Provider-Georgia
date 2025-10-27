@@ -44,6 +44,6 @@ As a reputable **Structured Cabling Installation for Offices Service Provider Ge
 
 ### Conclusion
 
-Whether you’re setting up a new office network or upgrading to high-performance fiber systems, J3K Technologies provides the expertise and precision your business deserves. Our professional services ensure that your network infrastructure is built to perform — today and for years to come.
+Whether you’re setting up a new office network or upgrading to high-performance fiber systems, J3K Technologies provides the expertise and precision your business deserves. Our professional services ensure that your network infrastructure is built to perform-today and for years to come.
 
 ---
